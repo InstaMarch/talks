@@ -5,4 +5,5 @@
 * Listening as a service III: Opposite Perspectives
 * What is Imaginary Sophism?
 * Scapegoating helps nobody!
-* Collective survival and the individual 
+* Collective survival and the individual
+* Beyond good and bad: the tragic metaphysics of great literary criticism
